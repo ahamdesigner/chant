@@ -1,3 +1,3 @@
-# chant
-mantra chanting
-import mantra read mantras repeat on manifestation 
+# प्रस्तव
+मन्त्र प्रस्तव
+आयात मन्त्र पठति मन्त्र अनुवदति प्रकटता 
